@@ -23,6 +23,7 @@ Para resolver a ODS 6 e alcançar a meta de garantir a disponibilidade e gestão
 Essas são apenas algumas das muitas possíveis soluções para resolver a ODS 6. É importante que todas as partes interessadas trabalhem juntas para alcançar essa meta importante e garantir que todos tenham acesso à água potável e saneamento básico.
 
 ## 🌌 Conclusão e considerações finais
+![image](https://user-images.githubusercontent.com/111026785/236574629-ca94b898-6a10-4d3e-9fe4-136666031ae4.png)
 A participação em eventos como esse, que abordam as ODS e suas metas, é fundamental para a conscientização e o engajamento das pessoas na busca por um mundo mais justo e sustentável.
 
 No caso da ODS 6, discutiu-se a importância de garantir a disponibilidade e gestão sustentável da água e saneamento para todos. É fundamental que se reconheça a água como um recurso limitado e que sejam tomadas medidas eficazes para garantir sua utilização adequada e sua preservação.
